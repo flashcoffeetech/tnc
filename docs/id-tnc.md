@@ -128,3 +128,7 @@ By accepting and sharing your referral code or by signing up with a referral cod
 9. Jika terjadi perselisihan, keputusan Flash Coffee bersifat final.
 
 Dengan menerima dan membagikan kode referral Kamu atau mendaftar dengan kode referral, Kamu setuju untuk terikat oleh syarat dan ketentuan ini. Setiap pelanggaran terhadap aturan ini dapat mengakibatkan hilangnya atau pencabutan voucher atau hadiah lain yang diperoleh melalui program dan dapat mencegah Kamu berpartisipasi dalam program mendatang atau bahkan menyebabkan penonaktifan akun milikmu.
+
+# List of  PT Sembilan Puluh Enam Derajat, stores in Indonesia
+
+[See list of stores](https://flash-coffee.com/id/stores/)
